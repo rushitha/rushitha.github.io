@@ -1,2 +1,2 @@
 # rushitha.github.io
-Adventure Travel Association
+My Personal Page
