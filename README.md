@@ -1,3 +1,3 @@
-# https://rushitha.github.io/
+# http://rushitha.github.io/
 My Personal Page
  
